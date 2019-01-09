@@ -1,11 +1,11 @@
-Das verwunt tigertier
-In dem kurzen ton Hans Sachsen.
+﻿Der verwuntede Tiger
+Eine Kurzgeschichte von Hans Sachsen.
 
 26. juni 1545.
 
 1.
 
-Ein tigertier, das wont in einem walt,
+Ein Tiger, der in einem Walt wohnte,
 darinnen war der tierlein manigfalt,
 über die all das tigertier war küne
 Es het sein stande auf einem plan ser weit,
